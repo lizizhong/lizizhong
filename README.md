@@ -2,7 +2,7 @@
 
 ### Hi there 👋
 
-> I am Lizizhong.
+> I am zizhong.
 
 
 <!--
